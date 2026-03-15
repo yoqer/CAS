@@ -6,7 +6,7 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 
 ·Generacion de Luz Nocturna por Fenomenos Biologicos de la Naturaleza.
 
-[Gamusino]
+[Gamusinos]
 
 ·Manipulacion Alimenticia de Componentes.
 
@@ -23,9 +23,8 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 
 ·Genetica:
 
--Extintos: 
 
-[Lobo Feroz](https://youtu.be/22DjH40EddQ?si=FYtRjmpo_rq-eIDZ)*  
+[Lobo Feroz](https://youtu.be/22DjH40EddQ?si=FYtRjmpo_rq-eIDZ)  
 
 [Mamut](https://youtu.be/CHkw4BQ1Rfw?si=s0xk5VDxxBLIkt1W)
 
@@ -33,6 +32,8 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 
 **Despues del Aprendizaje Maquina y la Recreacion de Ecosistemas Biologicos Virtuales** 
 
+
 ·Genoma Descifrado.
+
 
 ·Genetica Recombinante.
