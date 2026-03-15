@@ -19,10 +19,11 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 [Spider Goat](https://youtu.be/TbvWnJh9e-g?si=Cd5f1EENKSabNzNG)
 
 
-·Genetica: 
-Extintos: 
+·Genetica:
 
-[Lobo Feroz](https://youtu.be/22DjH40EddQ?si=FYtRjmpo_rq-eIDZ)  
+-Extintos: 
+
+[Lobo Feroz](https://youtu.be/22DjH40EddQ?si=FYtRjmpo_rq-eIDZ)*  
 
 [Mamut](https://youtu.be/CHkw4BQ1Rfw?si=s0xk5VDxxBLIkt1W)
 
