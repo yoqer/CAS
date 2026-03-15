@@ -12,6 +12,7 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 
 ·Manipulacion Diseño Vegetal.
 
+[Mar de Plastico](https://youtu.be/HRidzagTJRI?si=WwadZOMlvBqPeGpz)
 
 ·Manipulacion Animal: 
 
