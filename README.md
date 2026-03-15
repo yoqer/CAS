@@ -38,4 +38,4 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 
 
 
-·[Genetica Recombinante.](http://github.com/yoqer/CAS/estudio_genomica_ia.pdf) 
+·[Genetica Recombinante.](https://github.com/yoqer/CAS/blob/main/estudio_genomica_ia.pdf)
