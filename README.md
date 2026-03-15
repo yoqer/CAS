@@ -6,6 +6,8 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 
 ·Generacion de Luz Nocturna por Fenomenos Biologicos de la Naturaleza.
 
+[Gamusino]
+
 ·Manipulacion Alimenticia de Componentes.
 
 [Transgenicos](https://www.youtube.com/watch?v=vgPioT9X6JA)
