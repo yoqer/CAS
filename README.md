@@ -33,7 +33,9 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 **Despues del Aprendizaje Maquina y la Recreacion de Ecosistemas Biologicos Virtuales** 
 
 
-·Genoma Descifrado.
+·[Genoma Descifrado.](https://youtu.be/c1Ngs10cQks?si=Aq4zynCuVvY9vrWM)
+
+
 
 
 ·Genetica Recombinante.
