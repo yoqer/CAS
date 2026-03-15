@@ -7,19 +7,24 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 ·Generacion de Luz Nocturna por Fenomenos Biologicos de la Naturaleza.
 
 ·Manipulacion Alimenticia de Componentes.
+
 [Transgenicos](https://www.youtube.com/watch?v=vgPioT9X6JA)
 
 ·Manipulacion Diseño Vegetal.
 
 
 ·Manipulacion Animal: 
+
 [Spider Goat](https://youtu.be/TbvWnJh9e-g?si=Cd5f1EENKSabNzNG)
 
 
 ·Genetica: 
 Extintos: 
-[Lobo Feroz](https://youtu.be/22DjH40EddQ?si=FYtRjmpo_rq-eIDZ)    
+
+[Lobo Feroz](https://youtu.be/22DjH40EddQ?si=FYtRjmpo_rq-eIDZ)  
+
 [Mamut](https://youtu.be/CHkw4BQ1Rfw?si=s0xk5VDxxBLIkt1W)
+
 
 
 **Despues del Aprendizaje Maquina y la Recreacion de Ecosistemas Biologicos Virtuales** 
