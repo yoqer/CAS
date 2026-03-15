@@ -10,7 +10,9 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 
 ·Manipulacion Diseño Vegetal.
 
-·Manipulacion Animal `[Spider Goat](https://youtu.be/CHkw4BQ1Rfw?si=s0xk5VDxxBLIkt1W)
+·Manipulacion Animal: 
+[Seda](https://youtu.be/TbvWnJh9e-g?si=Cd5f1EENKSabNzNG)
+[Spider Goat](https://youtu.be/CHkw4BQ1Rfw?si=s0xk5VDxxBLIkt1W)
 
 ·Genetica: 
 Extintos: 
