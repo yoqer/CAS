@@ -38,6 +38,6 @@ La Experimentacion en los Avances Cientificos pueden dotar a los Modelos Entrena
 
 
 
-# ·[Genetica Recombinante.](https://github.com/yoqer/CAS/blob/main/estudio_genomica_ia.pdf)
+# ·[La Genetica Recombinante.](https://github.com/yoqer/CAS/blob/main/estudio_genomica_ia.pdf)
 
-[Vacunas como la Rusa, pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625)
+Curar: [Vacunas como la Rusa, pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625)
