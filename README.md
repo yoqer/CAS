@@ -53,6 +53,8 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 ·[Genoma Descifrado.](https://youtu.be/c1Ngs10cQks?si=Aq4zynCuVvY9vrWM)
 
 
+______________________________________________________________________________________________________________________________________
+
 
 
 # ·[Genetica Recombinante.](https://github.com/yoqer/CAS/blob/main/estudio_genomica_ia.pdf)
