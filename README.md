@@ -3,7 +3,7 @@
 La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entrenados de Cualidades Sorprendentes que Costarian Años de Investigacion.
 
 
-**Antes de la Automatizacion de los Analisis de Datos por la Recreacion de Condiciones de Laboratorio**
+   **Antes de la Automatizacion de los Analisis de Datos por la Recreacion de Condiciones de Laboratorio**
 
 ·Generacion de Luz Nocturna por Fenomenos Biologicos de la Naturaleza.
 
@@ -31,16 +31,16 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 
 
 
-**Despues del Aprendizaje Maquina y la Recreacion de Ecosistemas Biologicos Virtuales** 
+   **Despues del Aprendizaje Maquina y la Recreacion de Ecosistemas Biologicos Virtuales** 
 
 
 [Plegamiento Proteinas](https://alphafold.com)  
 
-       +   
++   
        
 [ALPHAFOLD 3](https://alphafoldserver.com/welcome)
 
-      =
+=
 
 ·[Genoma Descifrado.](https://youtu.be/c1Ngs10cQks?si=Aq4zynCuVvY9vrWM)
 
