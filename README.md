@@ -1,4 +1,4 @@
-# CAS
+no# CAS
 
 La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entrenados de Cualidades Sorprendentes que Costarian Años de Investigacion.
 
@@ -59,4 +59,5 @@ ________________________________________________________________________________
 
 # ·[Genetica Recombinante.](https://github.com/yoqer/CAS/blob/main/estudio_genomica_ia.pdf)
 
-[Vacunas como la Rusa, pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625)
+[Vacunas]( https://youtu.be/sHuwdGV6ctk?is=oHXi9X5W9ulC-uoH) como la Rusa, 
+[pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625)
