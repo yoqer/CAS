@@ -34,8 +34,10 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 **Despues del Aprendizaje Maquina y la Recreacion de Ecosistemas Biologicos Virtuales** 
 
 
-[Plegamiento Proteinas](https://alphafold.com)                   
-       +                                                                                                               +
+[Plegamiento Proteinas](https://alphafold.com)  
+
+       +   
+       
 [ALPHAFOLD 3](https://alphafoldserver.com/welcome)
 
       =
