@@ -44,9 +44,9 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
 
 [Plegamiento Proteinas](https://alphafold.com)                    o    [Comparar  Proteinas](https://github.com/sokrypton/ColabFold)
 
-+                                                                      +   
++   
        
-[ALPHAFOLD 3](https://alphafoldserver.com/welcome)
+[ALPHAFOLD 3](https://alphafoldserver.com/welcome)                o    [Analisis Local](http://mmseqs.com)
 
 =
 
