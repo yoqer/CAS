@@ -59,5 +59,8 @@ ________________________________________________________________________________
 
 # ·[Genetica Recombinante.](https://github.com/yoqer/CAS/blob/main/estudio_genomica_ia.pdf)
 
-[Vacunas]( https://youtu.be/sHuwdGV6ctk?is=oHXi9X5W9ulC-uoH) como las Rusas; 
+ -[Vacunas]( https://youtu.be/sHuwdGV6ctk?is=oHXi9X5W9ulC-uoH) como las Rusas; 
 [ pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625)
+
+
+ -Tijeras de Sangre (0) [Hackerb, Mark](https://youtu.be/xapO8iymkNI?is=sFL0ZXKR4XfMK57X)
