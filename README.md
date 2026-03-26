@@ -64,6 +64,6 @@ ________________________________________________________________________________
 [ pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625). [Cancer]
 
 
--Virus: [VIH](https://youtu.be/NZksp97bFh8?is=gZBi0RCQu4dmafZ3)  /  [Vacuna](https://youtu.be/pv70_xog5Qc?is=t-KdL9_ReWUXg53z) | Siguio:[Sida]
+-Virus: [VIH](https://youtu.be/NZksp97bFh8?is=gZBi0RCQu4dmafZ3)  /  [Sida](https://youtu.be/iX6P0fcUays?is=T0i0GRwyke4FO_Tw)   |   [Vacuna](https://youtu.be/pv70_xog5Qc?is=t-KdL9_ReWUXg53z)   /   [Cura]
 
  -Tijeras de Sangre (0) Danesa Bacteria Natural: [AkkerMansIA](https://youtu.be/xapO8iymkNI?is=sFL0ZXKR4XfMK57X)
