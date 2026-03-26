@@ -1,6 +1,6 @@
 # CAS
 
-La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entrenados de Cualidades Sorprendentes que Costarian Años de Investigacion.
+La Experimentacion en los Avances Cientificos pueden dotar a los Modelos Entrenados de Cualidades Sorprendentes que Costarian Años de Investigacion.
 
 
                 - 
