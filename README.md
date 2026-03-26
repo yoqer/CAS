@@ -60,10 +60,10 @@ ________________________________________________________________________________
 
 # ·[Genetica Recombinante.](https://github.com/yoqer/CAS/blob/main/estudio_genomica_ia.pdf)
 
- -[Vacunas]( https://youtu.be/sHuwdGV6ctk?is=oHXi9X5W9ulC-uoH) como las Rusas; 
-[ pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625). [Cancer]
+ -[Cáncer](https://youtu.be/qz4T43P63nQ?is=r4QJQR_iumv-ZPuN)  |  [Vacunas]( https://youtu.be/sHuwdGV6ctk?is=oHXi9X5W9ulC-uoH) como las Rusas; 
+[ pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625)
 
 
--Virus: [VIH](https://youtu.be/NZksp97bFh8?is=gZBi0RCQu4dmafZ3)  /  [Sida](https://youtu.be/iX6P0fcUays?is=T0i0GRwyke4FO_Tw)  /  *[Cura](https://youtu.be/1vXkm40e_sM?is=SfsOKsjAHrZOnG61)   |   [Vacuna](https://youtu.be/pv70_xog5Qc?is=t-KdL9_ReWUXg53z)   /   *
+-Virus: [VIH](https://youtu.be/NZksp97bFh8?is=gZBi0RCQu4dmafZ3)  /  [Sida](https://youtu.be/iX6P0fcUays?is=T0i0GRwyke4FO_Tw)  /  *[Cura](https://youtu.be/1vXkm40e_sM?is=SfsOKsjAHrZOnG61)   |   [Vacuna](https://youtu.be/pv70_xog5Qc?is=t-KdL9_ReWUXg53z)   
 
  -Tijeras de Sangre (0) Danesa Bacteria Natural: [AkkerMansIA](https://youtu.be/xapO8iymkNI?is=sFL0ZXKR4XfMK57X)
