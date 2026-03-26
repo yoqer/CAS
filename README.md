@@ -3,7 +3,7 @@
 La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entrenados de Cualidades Sorprendentes que Costarian Años de Investigacion.
 
 
-                -
+                - [Genética](https://youtu.be/rL1H2xluJ_c?is=gmjPDWUbZJJR-PmN)
 
                 
  
