@@ -10,7 +10,7 @@ La Experinmentacion en los Avances Cientificos pueden dotar a los Modelos Entren
  
  **Antes de la Automatizacion de los Analisis de Datos por la Recreacion de Condiciones de Laboratorio**
 
-·Generacion de Luz Nocturna por Fenomenos Biologicos de la Naturaleza.
+·Generacion de Luz Fosfórica por Biologia de la Naturaleza.
 
 [Gamusinos]
 
