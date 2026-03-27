@@ -63,7 +63,9 @@ ________________________________________________________________________________
  -[Cáncer](https://youtu.be/qz4T43P63nQ?is=r4QJQR_iumv-ZPuN)  |  [Vacunas]( https://youtu.be/sHuwdGV6ctk?is=oHXi9X5W9ulC-uoH) como las Rusas; 
 [ pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625)
 
-[Kalamicina de experimentos + S?](https://youtu.be/MnWcOEafEkg?is=_Qnal6WafwXq9pF1)
+[Kalamicina](https://youtu.be/MnWcOEafEkg?is=_Qnal6WafwXq9pF1)
+de experimentos [+ S3](https://youtu.be/4l9VtcpYH8I?is=RKYsc0Tlz611vr6I)
+
 
 -Virus: [VIH](https://youtu.be/NZksp97bFh8?is=gZBi0RCQu4dmafZ3)  /  [Sida](https://youtu.be/iX6P0fcUays?is=T0i0GRwyke4FO_Tw)  /  *[Cura](https://youtu.be/1vXkm40e_sM?is=SfsOKsjAHrZOnG61)   |   [Vacuna](https://youtu.be/pv70_xog5Qc?is=t-KdL9_ReWUXg53z)   
 
