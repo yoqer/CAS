@@ -12,7 +12,7 @@ La Experimentacion en los Avances Cientificos pueden dotar a los Modelos Entrena
 
 ·Generacion de Luz Fosfórica por Fenómeno de la Biología Natural.
 
-[Gamusinos]
+[Gamusinos](https://github.com/yoqer/CAS-Genes/blob/main/Manual_de_Librer%C3%ADas_Bioinform%C3%A1ticas_para_el_An%C3%A1lis.md)
 
 ·Manipulacion Alimenticia de Componentes.
 
