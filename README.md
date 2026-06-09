@@ -68,6 +68,8 @@ ________________________________________________________________________________
 de experimentos [+ S3](https://youtu.be/4l9VtcpYH8I?is=RKYsc0Tlz611vr6I)
 
 
--Virus: [VIH](https://youtu.be/NZksp97bFh8?is=gZBi0RCQu4dmafZ3)  /  [Sida](https://youtu.be/iX6P0fcUays?is=T0i0GRwyke4FO_Tw)  /  *[Cura](https://youtu.be/1vXkm40e_sM?is=SfsOKsjAHrZOnG61)   |   [Vacuna](https://youtu.be/pv70_xog5Qc?is=t-KdL9_ReWUXg53z)   
+-Virus: [VIH](https://youtu.be/NZksp97bFh8?is=gZBi0RCQu4dmafZ3)  /  [Sida](https://youtu.be/iX6P0fcUays?is=T0i0GRwyke4FO_Tw)  /  *[Cura](https://youtu.be/1vXkm40e_sM?is=SfsOKsjAHrZOnG61)   |   [Vacuna](https://youtu.be/pv70_xog5Qc?is=t-KdL9_ReWUXg53z)  
+
+[Gripe:](https://www.msn.com/es-es/salud/vida-saludable/un-hallazgo-accidental-cambia-lo-que-se-cre%C3%ADa-sobre-la-gripe-y-abre-la-puerta-a-nuevos-tratamientos/ar-AA24XZAq?cvid=6a252503c8814eb1a8259084ff0b0c89&ocid=hpmsn) A, B y C.
 
  -Tijeras de Sangre (0) Danesa Bacteria Natural: [AkkerMansIA](https://youtu.be/xapO8iymkNI?is=sFL0ZXKR4XfMK57X)
