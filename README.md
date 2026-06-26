@@ -62,7 +62,11 @@ ________________________________________________________________________________
 
  -[Cáncer](https://youtu.be/qz4T43P63nQ?is=r4QJQR_iumv-ZPuN)  |  [Vacunas]( https://youtu.be/sHuwdGV6ctk?is=oHXi9X5W9ulC-uoH) como las Rusas; 
 [ pero al alcance de cualquiera...](https://x.com/TrungTPhan/status/2032949970161250625).             
--Con diseño [Especifico](https://youtu.be/4DBrJwY2CAM?is=tk07qm60Qzbr9LMC)
+-Con diseño [Especifico](https://youtu.be/4DBrJwY2CAM?is=tk07qm60Qzbr9LMC):
+
+-[Melanoma.](https://youtu.be/QiEPDkJU5oQ?is=bLMWeHGNTZeF0NwZ)
+
+
 
 [Kalamicina](https://youtu.be/MnWcOEafEkg?is=_Qnal6WafwXq9pF1)
 de experimentos [+ S3](https://youtu.be/4l9VtcpYH8I?is=RKYsc0Tlz611vr6I)
